@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا نور روحي في هذا الزمان
+> قلبي ينادي يبحث عن أمان
+> تعال بقربي نعيش في غرام
+> نذوب سويا بغير كلام
 > ...
 
 📄 **[View Full Lyrics →](./lyrics.txt)**
